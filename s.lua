@@ -1,1 +1,1 @@
-sqwatlox, yarikvgy, fenomen4ikk, artbom
+artbom,yarikvgy,fenomen4ikk,SQWAT
